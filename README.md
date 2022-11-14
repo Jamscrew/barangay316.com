@@ -1,0 +1,4 @@
+# barangay316.com
+The Barangay, As the basic political unit, the barangay serves as the primary planning and implementing unit of government policies,plans, programs, projects, and activities in the community. As a forum wherein the collective views of the people may be expressed, crystallized and considered, and where disputes may be amicably settled.
+Our Mission is to effectively deliver basic services to the community, adhere to the concept of good governance and to the rule on transparency.To obtain a peaceful, progressive and healthy barangay thru effective implementation of laws and ordinances.To educate and empower every constituent to be responsive and responsible on environmental issues and concerns.
+Our Vission is to be a Barangay that is peaceful, progressive, healthy and conducive to living conditions and suitable for business oppurtunities.<br> <br/> A Barangay that is ecologically responsive and responsible towards the next generations.
